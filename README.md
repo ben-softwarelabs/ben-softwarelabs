@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ben-softwarelabs
 - 👀 I’m interested in Product and Software Development
-- 📫 How to reach me https://softwarelabs.com.au/
+- 📫 How to reach me https://softwarelabs.au/
